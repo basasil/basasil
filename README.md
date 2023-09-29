@@ -1,5 +1,7 @@
 never forget
-            if you're mean it's potentially to this guy                                                                                                                                                                                            
+            if you're mean it's potentially to this guy    
+
+            
                                                                                                                                       %%%@%                                                             
                                                                                                                                       %%%@@@@                                                           
                                                                                                                                       @#==*%@@@                                                         
